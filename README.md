@@ -1,1 +1,0 @@
-# threedee_designs
